@@ -1,1 +1,1 @@
-![Image of Miqo'te](https://konachan.net/sample/dd3d50d03856d7975a12ea1d82fdae43/Konachan.com%20-%20344211%20sample.jpg)
+![Image of Miqo'te](https://konachan.net/sample/df79c48715f78ef394cd7d1c22fce3c7/Konachan.com%20-%20344164%20sample.jpg)
